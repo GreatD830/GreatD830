@@ -11,4 +11,4 @@
 
 - 👉Feel free to 💬 me. I'll be happy to work with you and help you to build your idea in the web world.
 
-Regards![Uploading image.png…]()
+Regards!
